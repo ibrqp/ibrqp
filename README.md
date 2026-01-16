@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **muchammadibrahimalamin@gmail.com**
 
-- ⚡ Fun fact **Im Good Man**
+- ⚡ Fun fact **Im Good Man aseli**
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/ibrqp) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/muchammad-ibrahim-al-amin) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/ibrth) 
 
