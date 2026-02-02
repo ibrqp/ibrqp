@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm ibrahim</h1>
 <h3 align="center">Im from Indonesia</h3>
  
-- 📫 How to reach m e **muchammadibrahimalamin@gmail.com**
+- 📫 How to reach me **muchammadibrahimalamin@gmail.com**
 
 - ⚡ Fun fact **Im Good Man**
 ## 🌐 Socials:
